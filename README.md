@@ -1,0 +1,1 @@
+# Homework7-Gen-Tech-21.12.2023
